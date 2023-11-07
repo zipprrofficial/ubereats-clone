@@ -1,4 +1,4 @@
-An <a href="https://zipprr.com/category/ubereats-clone/">UberEats clone app</a> is a readymade script that allows entrepreneurs and businesses to launch their own on-demand food delivery platform similar to UberEats. With an UberEats clone, users can order food from local restaurants for delivery at their doorstep with just a few taps on their smartphone.
+An <a href="https://zipprr.com/ubereats-clone/">UberEats clone app</a> is a readymade script that allows entrepreneurs and businesses to launch their own on-demand food delivery platform similar to UberEats. With an UberEats clone, users can order food from local restaurants for delivery at their doorstep with just a few taps on their smartphone.
 
 <h2><b>Advanced features in UberEats clone</b></h2>
 
